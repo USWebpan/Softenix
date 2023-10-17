@@ -1,2 +1,2 @@
-# W3SOFTENIX
+# SOFTENIX
 Business company site
